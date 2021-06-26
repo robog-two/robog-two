@@ -1,4 +1,4 @@
-![My minecraft server stats.](https://minecraft-mp.com/leaderboard-288779-2.png)
+[![My minecraft server stats.](https://minecraft-mp.com/leaderboard-288779-2.png)](https://reflectednetwork.com)
 
 I'm Sam, Design Lead at [Reflected Network](https://reflectednetwork.com/).
 
