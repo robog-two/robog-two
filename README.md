@@ -1,1 +1,1 @@
-[![DISTILL YOUR DESIRE. SHARE WITH FRIENDS. WISHLILY](https://wishlily.app/_app/assets/embed-029a0d6f.png)](https://wishlily.app/login)
+Working towards a CS Major. This is my personal account, it doesn't get too much activity.
